@@ -1,2 +1,0 @@
-# Terminalpanacea-
-Teste 2
